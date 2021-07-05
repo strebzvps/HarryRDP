@@ -4,7 +4,7 @@ Just Download This Whole repository And make new repo in your GitHub account and
 
 # Video Guide
 
-https://t.me/Oshekher/27 
+Coming Soon
 
 Credit: netslutter & lrtanvir for the video 😁
 
